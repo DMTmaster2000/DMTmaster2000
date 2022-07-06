@@ -6,7 +6,7 @@
 - 🎉 I love to paint and play the guitar
 - 🥅 I am constantly learning new things
 - 🤹🏽 I like to do yoga and like to be calm
-<br />
+
 ### Connect with me: 
 - DMTmaster@gmail.com
 - deepherbal(instagram)
